@@ -1,1 +1,1 @@
-I have made new some changes
+I have made some changes
